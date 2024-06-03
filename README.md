@@ -2,7 +2,7 @@
 - 👀 I’m interested in eating onions and coding
 - 🌱 I’m currently learning how to code without eating my keyboard
 - 💞️ I’m looking to collaborate on digital projects in the ogerverse
-- 📫 How to reach me via oMessage
+- 📫 Contact me via oMessage
 - 😄 Pronouns: og/er
 - ⚡ Fun fact: In my free time I play professional Wii-Oger-Bowling
 
